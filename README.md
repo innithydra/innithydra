@@ -1,5 +1,5 @@
 <div align="center">
-<img width="250" src="https://c.tenor.com/v-OdIs9b8PwAAAAC/tenor.gif" alt="tommy">
+<img width="250" src="https://img1.picmix.com/output/pic/normal/6/6/5/1/12371566_972eb.gif" alt="tommy">
 
 
 <body>
@@ -20,3 +20,8 @@ either call us our coll. name or by the name of the pony!
 <img width="" src="https://64.media.tumblr.com/e222481b45289cd98e5f156d8d8235ca/bcf8daf480092699-0e/s100x200/053f6a8a4d359a9764ae81f464e3f552968a2d34.gif" alt="jumping">
 <img width="" src="https://64.media.tumblr.com/d394e4be30f3351e38966184f7205fde/e7b7a3bcb4165d4d-f1/s100x200/01b9df8cba5803c69564d43aa28ff4658b534f7a.gif" alt="punch">
 <img width="" src="https://64.media.tumblr.com/9b6acc52318f69145b4815f66ca3bb09/827c6325d9112677-a2/s250x400/2b66339039dddc6b485fe5f2fc7ab7aef7733bd2.png" alt="clingyduo">
+
+
+there is no host. just who's the main fronter of the week 🙄.<br> and that's me: TOMMYINNIT
+
+<img width="250" src="https://img1.picmix.com/output/pic/normal/7/0/5/4/12374507_1e33c.gif" alt="tommy">

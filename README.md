@@ -23,5 +23,6 @@ either call us our coll. name or by the name of the pony!
 
 
 there is no host. just who's the main fronter of the week 🙄.<br> and that's me: TOMMYINNIT
+<br> oh and if you're 13 or under please dni!!!
 
 <img width="250" src="https://img1.picmix.com/output/pic/normal/7/0/5/4/12374507_1e33c.gif" alt="tommy">

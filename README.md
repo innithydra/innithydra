@@ -10,7 +10,7 @@
 </body>
 </p>
 
-[rentry](https://rentry.co/tominit) . feel free to friend me on discord 🐛
+[rentry](https://rentry.co/tominit) . ask for discord! 🐛
 
 I am a system and our collective name is **Hydra**.  
 either call us our coll. name or by the name of the pony!
